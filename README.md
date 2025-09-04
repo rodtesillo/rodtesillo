@@ -2,7 +2,7 @@
 
 Soy Rodrigo López Tesillo. 🐅
 
-Soy un estudiante de 1er semestre en la Licenciatura en Ciencias Genómicas en la ENES Juriquilla.  
+Soy un estudiante de 1er semestre en la Licenciatura en Ciencias Genómicas en la ENES Juriquilla.
 
 Tengo 18 años y mis intereses en el área son la comprensión de la expresión de los genes y como su entendimiento y manipulación nos pueden ayudar a comprender mejor al ser humano y a todos los seres vivos mas profundamente
 
